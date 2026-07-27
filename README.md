@@ -72,3 +72,6 @@
 <div align="center"> ═════════════════════════════════════════════════════════════════════════════════════
 <div align="center">   . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ .  　⁺ 　 . ✦ .  　⁺ 　 . ✦ .  　⁺ 　 . ✦ .  　⁺ 　 . 
 <div align="center"> ︶︶୨୧︶︶⊹︶︶୨୧︶︶⊹︶︶୨୧︶︶⊹︶︶୨୧︶︶⊹︶︶୨୧︶︶⊹︶︶୨୧︶︶⊹︶︶୨୧︶︶⊹︶︶୨୧︶︶⊹︶︶୨୧︶︶⊹︶︶୨୧︶︶
+
+## Gimme more Spoke ponies >:3 !! /nf (ofc) !
+<p align="center">$${\color{#F5C1DE}Spoke  \space\color{#F3B4D7} ponies  \space\color{#F1A7D0} counter  \space\color{#EF9AC9} :  \space \color{#F5C1DE} 3}$$</p>
