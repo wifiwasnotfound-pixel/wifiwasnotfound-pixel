@@ -59,7 +59,7 @@
 # Mʏ ʟɪɴᴋꜱ !
 <br>
 <br>
-<div align="center"> ATA : https://jstwifi.atabook.org/ ! ​ ​ ​ ​ ​ ​ ​ StrawPage (prettier) : https://andresdarlingwifi.straw.page ! ​ ​ ​ ​ ​ ​ ​ StrawPage (Meh) : https://wwwang3lpupxx.straw.page
+<div align="center"> ATA : https://jstwifi.atabook.org/ ! ​ ​ ​ ​ ​ ​ ​ StrawPage : https://andresdarlingwifi.straw.page ! ​ ​ ​ ​ ​ ​ ​ StrawPage (COMMISSIONS) : https://wifiscommissions.straw.page
 <br>
 <div align="center"> yeah idk why it won't let me do hyperlinks so that's all I can do for now...
 <br>
@@ -74,4 +74,4 @@
 <div align="center"> ︶︶୨୧︶︶⊹︶︶୨୧︶︶⊹︶︶୨୧︶︶⊹︶︶୨୧︶︶⊹︶︶୨୧︶︶⊹︶︶୨୧︶︶⊹︶︶୨୧︶︶⊹︶︶୨୧︶︶⊹︶︶୨୧︶︶⊹︶︶୨୧︶︶
 
 ## I need more Spoke ponies pwetty pwease...🥺?
-<p align="center">$${\color{#F5C1DE}Spoke  \space\color{#F3B4D7} ponies  \space\color{#F1A7D0} counter  \space\color{#EF9AC9} :  \space \color{#F5C1DE} 3}$$</p>
+<p align="center">$${\color{#F5C1DE}Spoke  \space\color{#F3B4D7} ponies  \space\color{#F1A7D0} counter  \space\color{#EF9AC9} :  \space \color{#F5C1DE} 4}$$</p>
