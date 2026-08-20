@@ -59,7 +59,7 @@
 # Mʏ ʟɪɴᴋꜱ !
 <br>
 <br>
-<div align="center"> ATA : https://jstwifi.atabook.org/ ! ​ ​ ​ ​ ​ ​ ​ StrawPage : https://andresdarlingwifi.straw.page ! ​ ​ ​ ​ ​ ​ ​ StrawPage (COMMISSIONS) : https://wifiscommissions.straw.page
+<div align="center"> ATA : https://jstwifi.atabook.org/ ! ​ ​ ​ ​ ​ ​ ​ StrawPage : https://andresdarlingwifi.straw.page ! ​ ​ ​ ​ ​ ​ ​ StrawPage (COMMISSIONS) : https://wifiscommissions.straw.page [I do take Pony Town commissions... Giggles...]
 <br>
 <div align="center"> yeah idk why it won't let me do hyperlinks so that's all I can do for now...
 <br>
