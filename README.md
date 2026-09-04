@@ -41,7 +41,7 @@
 <br>
 <div align="center"> 𝕀 𝔻𝙾 ℕ𝙾𝚃 ℂ𝙾𝙽𝙳𝙾𝙽𝙴 ℙ𝙴𝙾𝙿𝙻𝙴 𝔹𝚁𝙴𝙰𝙺𝙸𝙽𝙶 𝕆𝚃𝙷𝙴𝚁𝚂' 𝔹𝙾𝚄𝙽𝙳𝙰𝚁𝙸𝙴𝚂, 𝕄𝙾𝚂𝚃𝙻𝚈 ℝ𝙴𝙶𝙰𝚁𝙳𝙸𝙽𝙶 ℂ𝙾𝙽𝚃𝙴𝙽𝚃 ℂ𝚁𝙴𝙰𝚃𝙾𝚁𝚂 !
 <div align="center"> 𝕊ᴏ ɪꜰ ʏᴏᴜ ꜱʜɪᴘ ᴘᴀʀꜰɪᴇꜱ ᴏʀ ᴀɴʏ ᴏᴛʜᴇʀ ꜱʜɪᴘ ᴛʜᴀᴛ ɪɴ ᴜɴᴄᴏᴍꜰʏ ᴛᴏ ℂℂꜱ ᴛʜᴇɴ ᴘʟᴇᴀꜱᴇ, ᴋɪɴᴅʟʏ ɢᴇᴛ ᴏᴜᴛ ᴏꜰ ᴍʏ ꜱɪɢʜᴛ. 𝕀 ᴡɪʟʟ ɴᴏᴛ ꜱᴜᴘᴘᴏʀᴛ ᴛʜᴏꜱᴇ ᴀᴄᴛɪᴏɴꜱ ᴏꜰ ʏᴏᴜʀꜱ.
-<br> ( I also deeply despise Wifies based ships so PLEASE get away from me if you wanna int with my Wifies pony for ship purposes, Ty. )
+<br> ( I also deeply despise Wifies based ships so PLEASE get away from me if you wanna int with my Wifies ponies for ship purposes, Ty. )
 <br>
 <br>
 <div align="center"> 𝕋ʜɪɴᴋ ᴀꜱ ɪꜰ ɪᴛ ᴡᴇʀᴇ ʏᴏᴜ, ʏᴏᴜ ᴡᴏᴜʟᴅɴ'ᴛ ᴡᴀɴᴛ ʏᴏᴜʀ ʙᴏᴜɴᴅᴀʀɪᴇꜱ ʙʀᴏᴋᴇɴ ɴᴏᴡ ᴡᴏᴜʟᴅ ʏᴏᴜ ? ℕᴏ, ᴏꜰ ᴄᴏᴜʀꜱᴇ ɴᴏᴛ. 𝕊ᴏ ᴛʜɪɴᴋ ᴡɪᴛʜ ʏᴏᴜʀ ʙʀᴀɪɴꜱ. 𝕋ʜᴇʏ ᴀʀᴇ ʜᴜᴍᴀɴꜱ ᴛᴏᴏ, ᴡɪᴛʜ ꜰᴇᴇʟɪɴɢꜱ, ꜱᴏ ᴘʟᴇᴀꜱᴇ ʀᴇꜱᴘᴇᴄᴛ ᴛʜᴇɪʀ ʙᴏᴜɴᴅᴀʀɪᴇꜱ ʟɪᴋᴇ ʏᴏᴜ ᴡᴏᴜʟᴅ ᴀɴʏᴏɴᴇ ᴇʟꜱᴇ'ꜱ.
